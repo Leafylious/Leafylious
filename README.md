@@ -1,6 +1,5 @@
 ## how do you use this bruh
 
-???????? wip
 ![image alt](https://files.catbox.moe/6f54f4.png)
 
 
