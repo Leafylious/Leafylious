@@ -2,6 +2,7 @@
 hiii... uhmm this is a wip im lowky still experimenting LOL
 </p>
 
+HOW DO YOU MAKE THIS VIEW COUNT MIDDLE OH MY GOD IM GOING TO CRASH OUT PLEASE WISPHER ME.
 
 ![](https://komarev.com/ghpvc/?username=Leafylious&abbreviated=true&color=51ace0&label=Marts+collected)
 
