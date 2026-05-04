@@ -1,7 +1,7 @@
 
 hiii... uhmm this is a wip im lowky still experimenting LOL
 
-![](https://komarev.com/ghpvc/?username=Leafylious&abbreviated=true&color=7bad51&label=Leaflings)
+![](https://komarev.com/ghpvc/?username=Leafylious&abbreviated=true&color=51ace0&label=Marts+collected)
 
 ![image alt](https://files.catbox.moe/6f54f4.png)
 
