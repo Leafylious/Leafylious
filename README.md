@@ -2,9 +2,13 @@
 hiii... uhmm this is a wip im lowky still experimenting LOL
 </p>
 
+
 ![](https://komarev.com/ghpvc/?username=Leafylious&abbreviated=true&color=51ace0&label=Marts+collected)
 
-![image alt](https://files.catbox.moe/6f54f4.png)
+<div align="center">
+  <img src="https://files.catbox.moe/6f54f4.png">
+</div>
+
 
 <!--
 **Leafylious/Leafylious** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
