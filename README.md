@@ -7,6 +7,10 @@ hiii... uhmm everything in here including atabook is a wip but feel free to sign
 
 ![](https://komarev.com/ghpvc/?username=Leafylious&style=pixel)
 ![](https://komarev.com/ghpvc/?username=Leafylious&style=pixel)
+![](https://komarev.com/ghpvc/?username=Leafylious&style=pixel)
+![](https://komarev.com/ghpvc/?username=Leafylious&style=pixel)
+![](https://komarev.com/ghpvc/?username=Leafylious&style=pixel)
+![](https://komarev.com/ghpvc/?username=Leafylious&style=pixel)
 ![Alt text](https://files.catbox.moe/zt3lfn.gif)
 ![](https://komarev.com/ghpvc/?username=Leafylious&style=pixel)
 ![Alt Text](https://files.catbox.moe/pp6dby.gif)
