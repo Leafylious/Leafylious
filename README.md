@@ -1,5 +1,6 @@
-
+<p align="center">
 hiii... uhmm this is a wip im lowky still experimenting LOL
+</p>
 
 ![](https://komarev.com/ghpvc/?username=Leafylious&abbreviated=true&color=51ace0&label=Marts+collected)
 
