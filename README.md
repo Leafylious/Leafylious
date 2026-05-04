@@ -1,6 +1,8 @@
 
 hiii... uhmm this is a wip im lowky still experimenting LOL
 
+![](https://komarev.com/ghpvc/?username=Leafylious&abbreviated=true&color=7bad51&label=Leaflings)
+
 ![image alt](https://files.catbox.moe/6f54f4.png)
 
 <!--
