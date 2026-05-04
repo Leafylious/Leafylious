@@ -1,8 +1,8 @@
-## how do you use this bruh
+
+hiii... uhmm this is a wip im lowky still experimenting LOL
 
 ![image alt](https://files.catbox.moe/6f54f4.png)
 
-uhhh... hi!
 <!--
 **Leafylious/Leafylious** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
