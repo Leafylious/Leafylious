@@ -5,10 +5,10 @@ hiii... uhmm everything in here including atabook is a wip but feel free to sign
 <a href="https://leaflious.atabook.org/">Atabook...wip</a>
 </p>
 
-⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ㅤ     ㅤ⋆.˚ ★ —
+⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![Alt Text](https://files.catbox.moe/pp6dby.gif)
 ![](https://komarev.com/ghpvc/?username=Leafylious&abbreviated=true&color=51ace0&label=Marts+collected)
-— ★ ‧₊˚ ⋅
+
 
 
 <div align="center">
