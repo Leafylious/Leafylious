@@ -1,8 +1,8 @@
 <p align="center">
-hiii... uhmm everything in here including atabook is a wip but feel free to sign it
+"ever heard of mart? no? good. that means you're still alive."
 </p>
 <p align="center">
-<a href="https://leaflious.atabook.org/">Atabook...wip</a>
+<a href="https://leaflious.atabook.org/">Atabook</a>
 </p>
 
 ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
