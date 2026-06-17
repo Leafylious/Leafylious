@@ -2,7 +2,7 @@
 "ever heard of mart? no? good. that means you're still alive."
 </p>
 <p align="center">
-<a href="https://leaflious.atabook.org/">Atabook</a>
+<a href="https://leaflious.atabook.org/">Sign Atabook!</a>
 </p>
 
 ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
