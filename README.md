@@ -6,13 +6,8 @@
 <a href="https://leaflious.atabook.org/">Sign Atabook!</a> || <a href="https://artfight.net/~Leafylious">FIGHT ME FIGHT ME</a>
 </p>
 
+
 <p align="center"> i'm quite anti social much, BUT feel free to int or whisper to me! </p>
 
 
 ![](https://komarev.com/ghpvc/?username=Leafylious&abbreviated=true&color=51ace0&label=Marts+collected)
-
-
-
-<div align="center">
-  <img src="https://files.catbox.moe/6f54f4.png">
-</div>
