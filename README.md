@@ -7,7 +7,7 @@
 </p>
 
 
-i'm quite anti social much, BUT feel free to int or whisper to me!
+i'm quite anti social much, BUT feel free to int or whisper to me! like please. interacting to me is encouraged...
 
 • Leafy BFDI fictkin , doubles int with caution
 
